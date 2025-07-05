@@ -21,4 +21,4 @@
 如果你正在寻找一个更新快、免费用、无广告干扰的日本AV网站，欢迎收藏本站，第一时间获取最新影片与女优动态，随时随地，轻松享受高质量的成人视频内容。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/yy3652/785123 ）</span>
